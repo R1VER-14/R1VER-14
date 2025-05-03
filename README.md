@@ -1,6 +1,6 @@
 ༺𓆩⛧𓆪༻
 
-🗡 ⹂ Oh give thanks to the Spawn, for he is good; for their steadfast love endures forever. "
+🗡 ⹂ I trusted you more than I've ever trusted in my life. "
 
 -------------⌘💔-➛--------------
 
