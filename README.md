@@ -4,4 +4,5 @@
 
 -------------⌘💔-➛--------------
 
-![2time  (1)](https://github.com/user-attachments/assets/06cdae44-a068-442e-ab67-d34b7ba9b9b7)
+![2time and azure](https://github.com/user-attachments/assets/72cf465e-7108-40db-864a-0596d2eb37c5)
+
