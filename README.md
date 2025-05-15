@@ -1,5 +1,6 @@
 
-![2time and azure](https://github.com/user-attachments/assets/72cf465e-7108-40db-864a-0596d2eb37c5)
+![twotime and azure](https://github.com/user-attachments/assets/0330730e-868c-4a4d-87d4-dd7ae3b0ec6b)
+
 
 ༉‧₊˚.︶︶︶︶︶︶︶︶༉‧₊˚.
 
