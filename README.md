@@ -16,5 +16,3 @@
 ꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷꒷꒦꒷꒦꒷꒦꒷꒦꒷
 
 
-
-![two-time-forsaken](https://github.com/user-attachments/assets/90a0e137-d58f-452b-ae2d-f26eb7fcb5f2)
