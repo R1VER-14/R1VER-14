@@ -1,6 +1,7 @@
-![two-time-forsaken](https://github.com/user-attachments/assets/35a43e20-c949-41af-8f8b-362e3261a860)
 
 ![azure and two time](https://github.com/user-attachments/assets/75370cb3-5dda-4132-9653-e3f6504d6532)
+![two-time-forsaken](https://github.com/user-attachments/assets/48a8a332-f0ff-4bab-884b-1b8c504b37e8)
+
 
 ꘎♡━━━━━━🕷⋅🕸━━━━━━♡꘎
 
