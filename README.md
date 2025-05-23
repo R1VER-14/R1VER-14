@@ -16,4 +16,4 @@
 ⚝ 𝘔𝘖𝘙𝘌  𝘐𝘕𝘍𝘖  𝘐𝘕  𝘚𝘛𝘙𝘈𝘞𝘗𝘈𝘎𝘌.           
 ꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷꒷꒦꒷꒦꒷꒦꒷꒦꒷
 
-![spawn  (1)](https://github.com/user-attachments/assets/107691d2-0d12-4a04-bf0b-10bdbfa39c87)
+![spawn  (2)](https://github.com/user-attachments/assets/c10533eb-9f53-4553-b492-8837bd5ad737)
