@@ -1,7 +1,5 @@
 
 ![azure and two time](https://github.com/user-attachments/assets/75370cb3-5dda-4132-9653-e3f6504d6532)
-![2738459_d7fb5](https://github.com/user-attachments/assets/970d28b5-4e00-4cfe-a3fc-7643b876b5ed)
-
 
 
 ꘎♡━━━━━━🕷⋅🕸━━━━━━♡꘎
@@ -19,3 +17,4 @@
 ꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷꒷꒦꒷꒦꒷꒦꒷꒦꒷
 
 
+![image](https://github.com/user-attachments/assets/c9fa6e96-dde3-4575-a87d-1f11954a3d68)
